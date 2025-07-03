@@ -15,6 +15,8 @@ im a big young leo (1990s-2000s) fan , not so much modern leo (˘･_･˘)
 
 I ALSO LOVE PRIME TOM HANKS (1980s-2000s) (≧∇≦)ﾉ
 
+![](https://gifcity.carrd.co/assets/images/gallery44/17f3ac88.gif?v=e3c0bc0f)
+
 MY COLLECTION!! (o゜▽゜)o☆ (Can you guess which movie is my favorite)
 
 ![](https://i.postimg.cc/SK8xGM28/IMG-0388.jpg)
