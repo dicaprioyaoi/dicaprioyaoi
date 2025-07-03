@@ -6,6 +6,8 @@
 
 
 
-im a big young leo fan , not so much modern leo (˘･_･˘)
+im a big young leo (1990s-2000s) fan , not so much modern leo (˘･_･˘)
 
 I ALSO LOVE PRIME TOM HANKS (1980s-2000s) (≧∇≦)ﾉ
+
+![](https://i.postimg.cc/cHFQmwYT/sub-buzz-22410-1477497728-2.jpg)
