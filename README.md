@@ -2,6 +2,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wawr7uc2p4tz3bz7gesudnppv&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=6a8cb9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![](https://64.media.tumblr.com/f060907ff41c37555cd5d4e3b828be3b/tumblr_pmxahpVmg91u675kj_1280.jpg)
+![](https://i.postimg.cc/LsrRwbpb/tumblr-pmxahp-Vmg91u675kj-1280.jpg)
+
+
 
 (the bfs ever)
